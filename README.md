@@ -1,0 +1,5 @@
+- 👋 Hi, I'm @nayannats
+- 👀 I am interested in technology
+- 🌱 I'm currently studying at UNPAM University
+- 😄 Pronoun: NANA
+- ⚡ Interesting fact: I really like kpop idols and I like cats
